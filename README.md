@@ -1,2 +1,0 @@
-# maarchcourriermobile-privacy
-maarchcourriermobile-privacy
